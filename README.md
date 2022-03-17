@@ -1,4 +1,4 @@
-*[View Education on LinkedIn Online](https://www.linkedin.com/in/rosa-wessel-904101218/details/education/)*
+*[View Education on LinkedIn Online](https://www.linkedin.com/in/rosa-wessel-904101218/details/education/)*  
 *[Back to Midterm Project](https://github.com/rosawessel/midterm/blob/main/README.md)*
 
 ### **University of Missouri-Columbia**  
